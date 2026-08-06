@@ -7,3 +7,6 @@
 '𝙄 𝙜𝙖𝙫𝙚 𝙮𝙤𝙪 𝙖𝙡𝙡 𝙄 𝙝𝙖𝙙... 𝙄 𝙙𝙞𝙙.'
 
 
+
+hi im an arthur morgan self/oc/yumeshipper doubles dni ok 
+
