@@ -9,6 +9,8 @@
 
 
 hi im an arthur morgan self/oc/yumeshipper doubles dni ok 
+<img width="451" height="532" alt="image" src="https://github.com/user-attachments/assets/042bd901-845c-4e9a-b6c5-c22978dd7c65" />
+
 
 
 <img width="1080" height="221" alt="image" src="https://github.com/user-attachments/assets/099b22a8-eab8-420b-839e-f889a34e5d31" /> <img width="1200" height="227" alt="image" src="https://github.com/user-attachments/assets/3383ac8e-275b-421b-8803-6fcb23a75e89" />
@@ -22,5 +24,7 @@ hi im an arthur morgan self/oc/yumeshipper doubles dni ok
 <img width="720" height="221" alt="image" src="https://github.com/user-attachments/assets/15769eea-356f-4730-886c-a81beda655d7" />
 <img width="1200" height="301" alt="image" src="https://github.com/user-attachments/assets/7706ba83-1cf1-4265-b4d7-0b98009667b1" />
 <img width="1200" height="437" alt="image" src="https://github.com/user-attachments/assets/9de7e62e-6fa9-4d66-a4eb-6b46330a1193" />
+<img width="719" height="640" alt="image" src="https://github.com/user-attachments/assets/40ca7a04-2597-49c6-939d-ebf82a7b1a51" />
+
 
 
