@@ -17,4 +17,3 @@ Ponytown's Deadpool :D
 Shoutout Wayne, Ari, Squidi and Vexxa, oomfs!! Love yall <333
 
 
-https://i.pinimg.com/736x/bb/d3/81/bbd38144d69dc89ebb47f3b4294f2f70.jpg
