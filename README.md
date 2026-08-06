@@ -1,4 +1,8 @@
 
+
+
+<img width="500" height="659" alt="image" src="https://github.com/user-attachments/assets/3ee2f1eb-ac1d-4f9c-8d97-1802aa5086ef" />
+
 Heya! I'm Rico, Wade, or Jevil!! Welcome to my profile! ^_^
 
 
@@ -15,8 +19,4 @@ Ponytown's Deadpool :D
 
 
 Shoutout Wayne, Ari, Squidi and Vexxa, oomfs!! Love yall <333
-
-
-<img width="500" height="659" alt="image" src="https://github.com/user-attachments/assets/3ee2f1eb-ac1d-4f9c-8d97-1802aa5086ef" />
-
 
