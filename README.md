@@ -14,4 +14,7 @@ I am THE Arthur Morgan yumeshipper, doubles do not interact with me please!
 Ponytown's Deadpool :D
 
 
-This is a wip as I figure out how to decorate it!
+Shoutout Wayne, Ari, Squidi and Vexxa, oomfs!! Love yall <333
+
+
+https://i.pinimg.com/736x/bb/d3/81/bbd38144d69dc89ebb47f3b4294f2f70.jpg
