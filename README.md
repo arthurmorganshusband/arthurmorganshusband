@@ -1,4 +1,5 @@
 
+
 ⊹ ࣪   ꜰᴀᴄᴇ ᴍᴇ ᴛᴏ ᴛʜᴇ ᴡᴇꜱᴛ ꜱᴏ ɪ ᴄᴀɴ ᴡᴀᴛᴄʜ ᴛʜᴇ ꜱᴇᴛᴛɪɴɢ ꜱᴜɴ ᴀɴᴅ ʀᴇᴍᴇᴍʙᴇʀ ᴀʟʟ ᴛʜᴇ ꜰɪɴᴇ ᴛɪᴍᴇꜱ ᴡᴇ ʜᴀᴅ ᴛʜᴀᴛ ᴡᴀʏ.
 
 <img width="500" height="659" alt="image" src="https://github.com/user-attachments/assets/3ee2f1eb-ac1d-4f9c-8d97-1802aa5086ef" />
@@ -9,6 +10,7 @@
 
 
 hi im an arthur morgan self/oc/yumeshipper doubles dni ok 
+call me sensitive ok but i'd prefer if u don't kiss/touch my arthur ponies unless ur a friend or theres c+h in my name ok? ok. u can but it makes me a bit uncomfortable sometimes ok
 <img width="451" height="532" alt="image" src="https://github.com/user-attachments/assets/042bd901-845c-4e9a-b6c5-c22978dd7c65" />
 
 
