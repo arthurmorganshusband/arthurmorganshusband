@@ -16,7 +16,7 @@ hi im an arthur morgan self/oc/yumeshipper doubles dni ok
 <img width="451" height="532" alt="image" src="https://github.com/user-attachments/assets/042bd901-845c-4e9a-b6c5-c22978dd7c65" />
 
 
-
+i love my oomfs!! shoutout to ari wayne vexxa and squidi
 <img width="1080" height="221" alt="image" src="https://github.com/user-attachments/assets/099b22a8-eab8-420b-839e-f889a34e5d31" /> <img width="1200" height="227" alt="image" src="https://github.com/user-attachments/assets/3383ac8e-275b-421b-8803-6fcb23a75e89" />
 <img width="1200" height="244" alt="image" src="https://github.com/user-attachments/assets/dd15aea9-6956-4099-b0d5-93c3b3b9fd6f" />
 <img width="1200" height="248" alt="image" src="https://github.com/user-attachments/assets/43a1199f-6f77-4bac-a04b-5ecdd249ce42" />
