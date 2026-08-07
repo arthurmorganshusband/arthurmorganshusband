@@ -1,8 +1,4 @@
-<p align="center">
-  <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=3126kyu7hnaigcimtx76fmls3anq&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false">
-  </a>
-</p>
+
 ⊹ ࣪   ꜰᴀᴄᴇ ᴍᴇ ᴛᴏ ᴛʜᴇ ᴡᴇꜱᴛ ꜱᴏ ɪ ᴄᴀɴ ᴡᴀᴛᴄʜ ᴛʜᴇ ꜱᴇᴛᴛɪɴɢ ꜱᴜɴ ᴀɴᴅ ʀᴇᴍᴇᴍʙᴇʀ ᴀʟʟ ᴛʜᴇ ꜰɪɴᴇ ᴛɪᴍᴇꜱ ᴡᴇ ʜᴀᴅ ᴛʜᴀᴛ ᴡᴀʏ.
 
 <img width="500" height="659" alt="image" src="https://github.com/user-attachments/assets/3ee2f1eb-ac1d-4f9c-8d97-1802aa5086ef" />
@@ -16,7 +12,11 @@ hi im an arthur morgan self/oc/yumeshipper doubles dni ok
 <img width="451" height="532" alt="image" src="https://github.com/user-attachments/assets/042bd901-845c-4e9a-b6c5-c22978dd7c65" />
 
 
-i love my oomfs!! shoutout to ari wayne vexxa and squidi
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=3126kyu7hnaigcimtx76fmls3anq&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false">
+  </a>
+</p>i love my oomfs!! shoutout to ari wayne vexxa and squidi
 <img width="1080" height="221" alt="image" src="https://github.com/user-attachments/assets/099b22a8-eab8-420b-839e-f889a34e5d31" /> <img width="1200" height="227" alt="image" src="https://github.com/user-attachments/assets/3383ac8e-275b-421b-8803-6fcb23a75e89" />
 <img width="1200" height="244" alt="image" src="https://github.com/user-attachments/assets/dd15aea9-6956-4099-b0d5-93c3b3b9fd6f" />
 <img width="1200" height="248" alt="image" src="https://github.com/user-attachments/assets/43a1199f-6f77-4bac-a04b-5ecdd249ce42" />
