@@ -10,9 +10,8 @@
 
 
 hi im an arthur morgan self/oc/yumeshipper doubles dni ok 
-call me sensitive ok but i'd prefer if u don't kiss/touch my arthur ponies unless ur a friend or theres c+h in my name ok? ok. u can but it makes me a bit uncomfortable sometimes ok
 <img width="451" height="532" alt="image" src="https://github.com/user-attachments/assets/042bd901-845c-4e9a-b6c5-c22978dd7c65" />
-
+call me sensitive ok but i'd prefer if u don't kiss/touch my arthur ponies unless ur a friend or theres c+h in my name ok? ok. u can but it makes me a bit uncomfortable sometimes ok
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
