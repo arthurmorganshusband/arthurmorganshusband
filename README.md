@@ -1,5 +1,4 @@
-<img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/3ef836f4-b07c-4ca4-91fa-87059e57a3e5" />
-<img width="750" height="100" alt="image" src="https://github.com/user-attachments/assets/827f06ab-5f18-4855-a28a-cf5c692adcaa" />
+
 
 
 ⊹ ࣪   ꜰᴀᴄᴇ ᴍᴇ ᴛᴏ ᴛʜᴇ ᴡᴇꜱᴛ ꜱᴏ ɪ ᴄᴀɴ ᴡᴀᴛᴄʜ ᴛʜᴇ ꜱᴇᴛᴛɪɴɢ ꜱᴜɴ ᴀɴᴅ ʀᴇᴍᴇᴍʙᴇʀ ᴀʟʟ ᴛʜᴇ ꜰɪɴᴇ ᴛɪᴍᴇꜱ ᴡᴇ ʜᴀᴅ ᴛʜᴀᴛ ᴡᴀʏ.
@@ -13,7 +12,7 @@
 
 hi im an arthur morgan self/oc/yumeshipper doubles dni ok 
 <img width="99" height="57" alt="image" src="https://github.com/user-attachments/assets/a95e0325-75a2-4596-9595-bbf846f456ad" />
-<img width="451" height="532" alt="image" src="https://github.com/user-attachments/assets/042bd901-845c-4e9a-b6c5-c22978dd7c65" />
+
 call me sensitive ok but i'd prefer if u don't kiss my arthur ponies unless ur a friend ok? ok. u can but it makes me a bit uncomfortable sometimes ok
 
 🌙 = iwc , i might be either moody, tired or just antisocial  ⛔ = what i usually have on , this doesn't really mean anything but im prob offtab
