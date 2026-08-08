@@ -13,6 +13,9 @@ hi im an arthur morgan self/oc/yumeshipper doubles dni ok
 <img width="451" height="532" alt="image" src="https://github.com/user-attachments/assets/042bd901-845c-4e9a-b6c5-c22978dd7c65" />
 call me sensitive ok but i'd prefer if u don't kiss my arthur ponies unless ur a friend ok? ok. u can but it makes me a bit uncomfortable sometimes ok
 
+🌙 = iwc , i might be either moody, tired or just antisocial  ⛔ = what i usually have on , this doesn't really mean anything but im prob offtab
+'lf chat' = i never really use this. if i do i guess im looking for a chat? 'lf roleplay' = nope. no no nope. not me. some1 hacked me. ok?
+
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=3126kyu7hnaigcimtx76fmls3anq&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false">
