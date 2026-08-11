@@ -1,5 +1,4 @@
 WIP ATM! DONT MIND FAULTINESS PLEASE
-<img width="1280" height="123" alt="image" src="https://github.com/user-attachments/assets/1673b22d-11e5-4492-baaf-8227b7d73f81" />
 
  <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/b858d792-1fee-4bd5-8ed7-04f8b83705bb" />
 
