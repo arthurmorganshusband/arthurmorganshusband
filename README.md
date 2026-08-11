@@ -1,4 +1,7 @@
 WIP ATM! DONT MIND FAULTINESS PLEASE
+<img width="1280" height="123" alt="image" src="https://github.com/user-attachments/assets/1673b22d-11e5-4492-baaf-8227b7d73f81" />
+
+<img width="250" height="250" alt="image" src="https://github.com/user-attachments/assets/d1f3e15c-32fd-4d65-847f-83c4e33a8879" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/b858d792-1fee-4bd5-8ed7-04f8b83705bb" />
 
 
 <img width="500" height="659" alt="image" src="https://github.com/user-attachments/assets/3ee2f1eb-ac1d-4f9c-8d97-1802aa5086ef" />
