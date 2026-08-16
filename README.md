@@ -1,7 +1,6 @@
 THIS IS A WORK IN PROGRESS AS I FIGURE OUT HOW TO USE GITHUB!
 
 
-alt="image" src="https://github.com/user-attachments/assets/78771111-e6b2-4084-8b02-e317bb34ebe7" />
 
 
 
