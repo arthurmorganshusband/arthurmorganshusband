@@ -1,5 +1,6 @@
 <img width="300" height="40" alt="fmlgif" src="https://github.com/user-attachments/assets/1df74405-6af9-46e2-b66f-5328096f0a40" />
-THIS IS A WORK IN PROGRESS AS I FIGURE OUT HOW TO USE GITHUB!
+<img width="150" height="20" alt="IPLAYVIOLENTGAMES" src="https://github.com/user-attachments/assets/fd246000-6d17-4361-8c5e-d7d872c47d7c" />
+
 
 
 
