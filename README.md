@@ -1,3 +1,4 @@
+<img width="300" height="40" alt="fmlgif" src="https://github.com/user-attachments/assets/1df74405-6af9-46e2-b66f-5328096f0a40" />
 THIS IS A WORK IN PROGRESS AS I FIGURE OUT HOW TO USE GITHUB!
 
 
