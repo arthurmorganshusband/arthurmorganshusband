@@ -5,7 +5,6 @@
 <img width="150" height="20" alt="ilmd" src="https://github.com/user-attachments/assets/1f273265-d3d4-4687-bcd3-fd85dcda22b4" />
 <img width="150" height="20" alt="abstracted binke" src="https://github.com/user-attachments/assets/0bd36fcc-71af-458c-8bfb-3f60a2cd79c6" />
 <img width="150" height="20" alt="gone jellyfishing" src="https://github.com/user-attachments/assets/14e5e2d6-a0a9-4c0f-9541-620369430330" />
-<img width="300" height="40" alt="fmlgif" src="https://github.com/user-attachments/assets/1df74405-6af9-46e2-b66f-5328096f0a40" />
 <img width="150" height="20" alt="IPLAYVIOLENTGAMES" src="https://github.com/user-attachments/assets/fd246000-6d17-4361-8c5e-d7d872c47d7c" />
 
 
