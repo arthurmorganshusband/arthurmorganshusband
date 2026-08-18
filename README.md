@@ -1,3 +1,4 @@
+!! ᴅᴏɴ'ᴛ ᴋɪꜱꜱ ᴍʏ ᴘᴏɴɪᴇꜱ ᴜɴʟᴇꜱꜱ ʏᴏᴜ'ʀᴇ ᴀ ꜰʀɪᴇɴᴅ !! ᴅᴏɴ'ᴛ ᴋɪꜱꜱ ᴍʏ ᴘᴏɴɪᴇꜱ !! ᴅᴏ ɴᴏᴛ !! ᴋɪꜱꜱ ᴛʜᴇᴍ !! ɪ ᴅᴏɴ'ᴛ ꜱᴇᴇ ʜᴏᴡ ᴛʜɪꜱ ɪꜱ ꜱᴏ ᴅɪꜰꜰɪᴄᴜʟᴛ ᴛᴏ ᴜɴᴅᴇʀꜱᴛᴀɴᴅ !! ᴅᴏɴ'ᴛ ᴋɪꜱꜱ !! ᴍʏ ᴘᴏɴɪᴇꜱ!!
 <img width="150" height="20" alt="DONEWITHTHESEMFS" src="https://github.com/user-attachments/assets/c62dae8a-2c04-4947-b7f7-273cfb75c15e" /><img width="150" height="20" alt="BILLCIPHERBLINKIE" src="https://github.com/user-attachments/assets/d765491e-2b5b-4a89-8454-0c44ac6fd351" />
 <img width="150" height="20" alt="BEWARE" src="https://github.com/user-attachments/assets/d0c885d2-0fd4-48cb-89c3-ee497e5fc5a1" />
 <img width="150" height="20" alt="ILOVEMYHUSBAND" src="https://github.com/user-attachments/assets/e2623e89-844a-4d0d-b2b9-ad3a93357d24" />
