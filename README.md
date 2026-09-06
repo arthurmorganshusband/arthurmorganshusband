@@ -24,7 +24,7 @@
 <img width="150" height="20" alt="IPLAYVIOLENTGAMES" src="https://github.com/user-attachments/assets/fd246000-6d17-4361-8c5e-d7d872c47d7c" />
 <img width="150" height="20" alt="GUITARITS" src="https://github.com/user-attachments/assets/4cecef42-9af3-4444-89e1-fe55dd6de283" />
 
-<img width="1152" height="288" alt="image" src="https://github.com/user-attachments/assets/b592fabd-ad83-4ac0-9288-9623cd2ee024" />
+<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/b592fabd-ad83-4ac0-9288-9623cd2ee024" />
 <img width="1198" height="247" alt="image" src="https://github.com/user-attachments/assets/4265ee59-e2af-4a9d-8bc9-63801ff0221b" />
 <img width="1200" height="245" alt="image" src="https://github.com/user-attachments/assets/74b37ca3-00f9-4175-aac8-3667eedfe402" />
 <img width="1080" height="218" alt="image" src="https://github.com/user-attachments/assets/af239b98-4f2e-401f-b731-702d4460d04c" />
