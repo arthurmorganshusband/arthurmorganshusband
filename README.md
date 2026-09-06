@@ -5,7 +5,7 @@
 
 
 <img width="368" height="369" alt="image" src="https://github.com/user-attachments/assets/76836298-609f-45c4-99c3-54363d7c9a6f" />
-<img width="295" height="370" alt="gif2arthur" src="https://github.com/user-attachments/assets/6060518c-83b7-4a19-9736-cf8e2b548b21" />
+<img width="200" height="330" alt="gif2arthur" src="https://github.com/user-attachments/assets/6060518c-83b7-4a19-9736-cf8e2b548b21" />
 <img width="640" height="452" alt="mmymarthurg3" src="https://github.com/user-attachments/assets/be9d9b3c-f0ac-4695-bc8f-9749cdffe87d" />
 <img width="220" height="303" alt="arfhr gif" src="https://github.com/user-attachments/assets/859ada28-1283-4908-a6ad-1f61279390fe" />
 
