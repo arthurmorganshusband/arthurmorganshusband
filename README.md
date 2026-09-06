@@ -25,7 +25,7 @@
 <img width="150" height="20" alt="GUITARITS" src="https://github.com/user-attachments/assets/4cecef42-9af3-4444-89e1-fe55dd6de283" />
 
 <img width="250" height="100" alt="image" src="https://github.com/user-attachments/assets/b592fabd-ad83-4ac0-9288-9623cd2ee024" />
-<img width="1198" height="247" alt="image" src="https://github.com/user-attachments/assets/4265ee59-e2af-4a9d-8bc9-63801ff0221b" />
+<img width="400" height="83" alt="image" src="https://github.com/user-attachments/assets/4265ee59-e2af-4a9d-8bc9-63801ff0221b" />
 <img width="1200" height="245" alt="image" src="https://github.com/user-attachments/assets/74b37ca3-00f9-4175-aac8-3667eedfe402" />
 <img width="1080" height="218" alt="image" src="https://github.com/user-attachments/assets/af239b98-4f2e-401f-b731-702d4460d04c" />
 <img width="1200" height="245" alt="image" src="https://github.com/user-attachments/assets/4c9373aa-43dd-4eb1-b494-3a011a87cd96" />
