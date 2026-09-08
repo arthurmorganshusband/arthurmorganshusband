@@ -27,8 +27,10 @@
 <img width="150" height="20" alt="gone jellyfishing" src="https://github.com/user-attachments/assets/14e5e2d6-a0a9-4c0f-9541-620369430330" />
 <img width="150" height="20" alt="IPLAYVIOLENTGAMES" src="https://github.com/user-attachments/assets/fd246000-6d17-4361-8c5e-d7d872c47d7c" />
 <img width="150" height="20" alt="GUITARITS" src="https://github.com/user-attachments/assets/4cecef42-9af3-4444-89e1-fe55dd6de283" />
+<img width="150" height="20" alt="c37" src="https://github.com/user-attachments/assets/ed14b52b-9857-4014-8b22-ef39ba4c937d" />
+<img width="150" height="20" alt="fucktrump" src="https://github.com/user-attachments/assets/2160ef65-7160-4f44-903c-873c0d0c32bd" />
+<img width="150" height="20" alt="0clown" src="https://github.com/user-attachments/assets/2763fd8a-cd05-4c6c-9ddd-6ac989aff9c3" />
 
-<a href="https://hits.sh/github.com/arthurmorganshusband/"><img alt="Hits" src="https://hits.sh/github.com/arthurmorganshusband.svg?style=for-the-badge&label=Gigglefuckers&labelColor=e2e2e2"/></a>
 
 <img width="400" height="83" alt="image" src="https://github.com/user-attachments/assets/b592fabd-ad83-4ac0-9288-9623cd2ee024" />
 <img width="400" height="83" alt="image" src="https://github.com/user-attachments/assets/63ce199d-73ea-4d57-822a-ef271856b8f1" />
