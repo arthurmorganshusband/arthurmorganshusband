@@ -28,7 +28,7 @@
 <img width="150" height="20" alt="IPLAYVIOLENTGAMES" src="https://github.com/user-attachments/assets/fd246000-6d17-4361-8c5e-d7d872c47d7c" />
 <img width="150" height="20" alt="GUITARITS" src="https://github.com/user-attachments/assets/4cecef42-9af3-4444-89e1-fe55dd6de283" />
 
-<a href="https://hits.sh/github.com/arthurmorganshusband/"><img alt="Hits" src="https://hits.sh/github.com/arthurmorganshusband.svg?style=for-the-badge&label=Gigglefuckers who clicked my link&labelColor=e2e2e2"/></a>
+<a href="https://hits.sh/github.com/arthurmorganshusband/"><img alt="Hits" src="https://hits.sh/github.com/arthurmorganshusband.svg?style=for-the-badge&label=Gigglefuckers&labelColor=e2e2e2"/></a>
 
 <img width="400" height="83" alt="image" src="https://github.com/user-attachments/assets/b592fabd-ad83-4ac0-9288-9623cd2ee024" />
 <img width="400" height="83" alt="image" src="https://github.com/user-attachments/assets/63ce199d-73ea-4d57-822a-ef271856b8f1" />
