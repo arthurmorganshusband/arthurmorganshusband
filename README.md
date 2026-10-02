@@ -1,10 +1,6 @@
 <img width="2688" height="180" alt="IMG_8270" src="https://github.com/user-attachments/assets/0972a386-aef0-4d90-a6c0-b9a6f04f46a2" />
 
 
-  <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=3126kyu7hnaigcimtx76fmls3anq&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false">
-  </a>
-
 
 <img width="400" height="83" alt="image" src="https://github.com/user-attachments/assets/63ce199d-73ea-4d57-822a-ef271856b8f1" />
 <img width="400" height="83" alt="image" src="https://github.com/user-attachments/assets/4265ee59-e2af-4a9d-8bc9-63801ff0221b" />
@@ -37,3 +33,7 @@
 <img width="400" height="83" alt="image" src="https://github.com/user-attachments/assets/a9cc594c-3fe2-4586-8cd2-720ebfa55841" />
 <img width="400" height="83" alt="image" src="https://github.com/user-attachments/assets/4c63110b-d3d8-4955-b8b9-24f77c1c0b5c" />
 
+
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=3126kyu7hnaigcimtx76fmls3anq&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false">
+  </a>
