@@ -1,7 +1,7 @@
 <img width="2688" height="180" alt="IMG_8270" src="https://github.com/user-attachments/assets/0972a386-aef0-4d90-a6c0-b9a6f04f46a2" />
 
 <p align="right"><img width="399" height="625" alt="image-removebg-preview (17)" src="https://github.com/user-attachments/assets/37822593-57ee-4bd0-bb67-3fd9cf2117f9" />
-
+i cannot center this shit for the LIFE of me oh my fucking god. ill fix this later
 
 
 <img width="400" height="83" alt="image" src="https://github.com/user-attachments/assets/63ce199d-73ea-4d57-822a-ef271856b8f1" />
