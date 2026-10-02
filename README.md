@@ -45,7 +45,7 @@
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=3126kyu7hnaigcimtx76fmls3anq&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false">
   </a>
 
-<img width="400" height="83" alt="image" src="https://github.com/user-attachments/assets/b592fabd-ad83-4ac0-9288-9623cd2ee024" />
+
 <img width="400" height="83" alt="image" src="https://github.com/user-attachments/assets/63ce199d-73ea-4d57-822a-ef271856b8f1" />
 <img width="400" height="83" alt="image" src="https://github.com/user-attachments/assets/4265ee59-e2af-4a9d-8bc9-63801ff0221b" />
 <img width="400" height="83" alt="image" src="https://github.com/user-attachments/assets/74b37ca3-00f9-4175-aac8-3667eedfe402" />
