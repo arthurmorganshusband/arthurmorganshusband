@@ -33,7 +33,7 @@
 <img width="400" height="83" alt="image" src="https://github.com/user-attachments/assets/a9cc594c-3fe2-4586-8cd2-720ebfa55841" />
 <img width="400" height="83" alt="image" src="https://github.com/user-attachments/assets/4c63110b-d3d8-4955-b8b9-24f77c1c0b5c" />
 
-  <p center>
+  <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=3126kyu7hnaigcimtx76fmls3anq&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false">
   </a>
